@@ -4,7 +4,7 @@
 
 ## 东方闪电但是
 
-
+![](/assets/Chrysanthemum.jpg)
 
 
 
